@@ -54,7 +54,7 @@ The primary audience includes Heads of Recruitment and Data Scouts within clubs.
 ---
 
 ## Video URL
-https://youtu.be/KkwwFl5YG8E
+
 
 ---
 
